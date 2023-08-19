@@ -1,2 +1,2 @@
 # Cv-Collection
-Final updated resume on 11/05/2023
+Final updated resume on 19/08/2023
