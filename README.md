@@ -1,2 +1,3 @@
 # Cv-Collection
-Final updated resume on 19/08/2023 Kodnest Technology.
+Final updated Resume on 19/08/2023 Kodnest Technology.
+
